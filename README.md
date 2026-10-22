@@ -66,3 +66,14 @@ Enterprise B2B clients, fintech partners, and security auditors (e.g., SecurityS
 Deploy the complete lockdown kit to your servers. If your domain does not immediately pass Mozilla Observatory with a **Grade-A score** and clear standard vendor compliance checks, email us within 14 days for a **100% immediate full refund**.
 
 👉 **[Download the Production-Ready Lockdown Kit for $29](https://yosefpaskah.gumroad.com/l/drbajq?wanted=true)**
+
+---
+
+## 💰 Earn 50% Commission (Affiliate Partner Program)
+
+Do you run a newsletter, Twitter/X audience, blog, or Discord community for remote workers, tech freelancers, or agencies?
+
+You can earn an instant **50% split on every single sale** referred to this vault ($9.50 – $14.50 per sale):
+1. Sign up in 10 seconds on our official Gumroad partner portal: 👉 **[Join the Yosef Labs Affiliate Program (50% Cut)](https://yosefpaskah.gumroad.com/affiliates)**
+2. Grab your unique tracking link.
+3. Share it with your community and earn automated payouts directly to your PayPal or bank account!
